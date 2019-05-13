@@ -45,9 +45,9 @@ If after your test you feel you would like to gain more experience on the road o
 Links
 -----
 
-* [DSA](https://www.dsa.gov.uk)
-* [DVLA](https://www.dsa.gov.uk)
-* [Pass Plus](https://www.passplus.org.uk)
+* [DVSA](https://www.gov.uk/government/organisations/driver-and-vehicle-standards-agency)
+* [DVLA](https://www.gov.uk/government/organisations/driver-and-vehicle-licensing-agency)
+* [Pass Plus](https://www.gov.uk/pass-plus)
 
 
 
