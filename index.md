@@ -22,7 +22,7 @@ Knutsford, Mobberley, Alderley Edge, Wilmslow, Hale, Alrincham, Chelford, Maccle
 The Cars
 --------
 
-The cars we use are the new Ford Focus which is fully dual controlled. The Ford Focus is an easy car to drive with good all round observation which makes it easier to pick up the driving skills required.
+The cars we use are the Ford Focus which is fully dual controlled. The Ford Focus is an easy car to drive with good all round observation which makes it easier to pick up the driving skills required.
 
 What We Do
 ----------
