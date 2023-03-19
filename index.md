@@ -28,7 +28,7 @@ What We Do
 ----------
 
 ### Flexible lessons
-We tailor our lessons to suit your requirements. Lessons can be scheduled at a flexible time and place. We offer lessons of one, one and a half and two hours in length. Block booking discounts available.
+We tailor our lessons to suit your requirements. Lessons can be scheduled at a flexible time and place. We offer lessons of one, one and a half and two hours in length.
 
 ### Theory test
 In order to apply for your practical test a theory test must be taken and passed. Help is provided to prepare you for this test.
