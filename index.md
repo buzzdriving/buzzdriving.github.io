@@ -14,9 +14,9 @@ Contact Details
 ### Give us a buzz
 Daimon Alderson ADI
 
-Tel: 07773 168895
+Tel: 07773 168895 (whatsapp only for now)
 
-Temporary number: 07503 062180
+Temporary number: 07503 062180 (not whatsapp)
 
 ### Areas covered:
 Knutsford, Mobberley, Alderley Edge, Wilmslow, Hale, Alrincham, Chelford, Macclesfield, Holmes Chapel, Middlewich, Northwich and surrounding areas.
